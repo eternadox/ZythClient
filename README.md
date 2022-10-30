@@ -7,6 +7,7 @@ Zyth is a skidded client made by a known skidder (Phase, who changed his name to
 - Eterezy for the source leak <b><a href="https://www.masterof13fps.com/forum/index.php?threads%2Fzyth-client-skidded-wavelength-base-client.8388%2F">here</a></b>
 - asterix.dc for an image of shitcode
 - NotThatUwU for another image of shitcode
+- Michealz for the image of the AC detector
 
 # Some other funny shit
 Retarded code
