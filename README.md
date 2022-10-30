@@ -14,3 +14,19 @@ Retarded code
 
 
 <img src="https://masterof13fps.com/forum/data/attachments/0/415-de2fbc61801df6294c7aa924329cc2fa.jpg">
+Retarded code (2)
+
+
+
+
+
+
+<img src="https://masterof13fps.com/forum/data/attachments/0/416-668f6543c91d371db8b21f21ad7eabd8.jpg">
+Step "Bypass"
+
+
+
+
+
+
+<img src="https://masterof13fps.com/forum/data/attachments/0/446-063bfb1c689d6614331f9a75619946c2.jpg">
